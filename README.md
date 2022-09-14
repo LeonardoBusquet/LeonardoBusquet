@@ -7,7 +7,7 @@
 
 - 📫Você me acha **leobusquett@gmail.com**
 
-- 📄Estou iniciando na área de dados [https://www.linkedin.com/in/leobusquet/](https://www.linkedin.com/in/leobusquet/)
+- 📄Estou iniciando na área de dados https://www.linkedin.com/in/leobusquet/
 
 <h3 align="left">Connect com mim:</h3>
 <p align="left">
